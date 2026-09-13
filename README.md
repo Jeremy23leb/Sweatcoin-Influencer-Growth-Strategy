@@ -1,5 +1,6 @@
 # Sweatcoin – Influencer Growth Strategy
-https://canva.link/6hntpdjyg7uognz
+Présentation : https://canva.link/6hntpdjyg7uognz`
+Loom Video : https://www.loom.com/share/380ae06a73ca413bb963a91114a9b7ed
 
 ## Overview
 
